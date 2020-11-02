@@ -1,0 +1,2 @@
+for making potatochips we need to wash potatoes. after washing the potatoes cut them with the help of a slicer and drop it one by one in oil take them from the oil after 2 minuites then sprinkle salt,chillipowder and pepper on it "YOUR POTATOCHIPS ARE READY"
+                     "bye bye"
